@@ -53,6 +53,9 @@
       estén sufriendo abusos para que se sientan seguros mientras interactúan con la comunidad. 
       Valoramos tu presencia tanto digital como física.
     
+      Recuerda que l@s co-organizadorxs de la comunidad son voluntari@s que no reciben ningún tipo
+      de remuneración por la labor que hacen, por favor trátal@s con respeto y sé paciente con los
+      tiempos en los que tardan en solucionarte inquietudes.
       
       Esperamos que l@s participantes sigan estas reglas en la comunidad,
       talleres y eventos sociales relacionados con la misma.
